@@ -1,1 +1,1 @@
-# AI-ML-Training-at-IIIT-Hyderabad
+# AI-ML-Training-at-IIIT-TRILOKI
